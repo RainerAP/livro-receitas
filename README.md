@@ -2,12 +2,6 @@
 
 Ola bem vindo;;;;
 
-
-
 - strog   
 
-- 
-
-
-
-
+- lkjlksfdfsdj
